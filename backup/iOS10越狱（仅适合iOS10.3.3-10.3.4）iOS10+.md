@@ -1,0 +1,1 @@
+https://totally.not.spyware.lol这个为A7-A9设备，https://lukezgd.github.io/tns这个为iPhone7-7plus！具体教程观看B站up主xiaowz的BV1Lz5xzXEJQ
